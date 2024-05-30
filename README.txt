@@ -1,0 +1,1 @@
+Esse foi um dos maiores projetos em que participei: o desenvolvimento de um game, no qual fui responsável por algumas ilustrações, pela programação de algumas etapas e, principalmente, pela gestão e planejamento do projeto.
